@@ -1,1 +1,1 @@
-### Hi there, I'm Allison! 👋
+### Hi there, I'm Allison!
